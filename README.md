@@ -27,4 +27,4 @@
 
 ## Inspiration
 
-## Contact James Michael: jbm127@txstate.edu, Chance Mims: ChanceMims@gmail.com, Tristin Rolling: tristanrolling@gmail.com
+## Contact James Michael: jbm127@txstate.edu, Chance Mims: ChanceMims1@gmail.com, Tristin Rolling: tristan.rolling@gmail.com
